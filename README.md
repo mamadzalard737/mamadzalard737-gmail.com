@@ -1,2 +1,1 @@
-# mamadzalard737-gmail.com
- *774575264*.m
+https://github.com/mamadzalard737/mamadzalard737-gmail.com/new/main
